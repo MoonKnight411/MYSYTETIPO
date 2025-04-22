@@ -5,4 +5,5 @@
 
 залетаем в тгшечку: __[Мой тг канал](https://t.me/dmneznamov "НАЖМИТЕ СЮДАААА")
 
+![miamoto](https://github.com/user-attachments/assets/438adfb0-0188-493c-9d68-ab29ea6a9eae)
 
